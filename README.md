@@ -1,1 +1,1 @@
-![image alt](https://github.com/XANN6IX/xann6ix/blob/c0d36d2431e48e0c43efd12440cc953746527ff8/7049785E-69FF-498D-95CF-B6D97886A499.gif)
+![image alt](https://github.com/XANN6IX/xann6ix/blob/737c3fead5466e700bb8a80e5980902f110d1838/C21BE71B-1BEF-4BDC-8E4C-5C6320C507FE.jpeg)
