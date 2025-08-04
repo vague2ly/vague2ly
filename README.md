@@ -1,2 +1,2 @@
-![image alt](https://github.com/vague2ly/xann6ix/blob/0848d518d93544c9af23a376c30fcc71dc56cf1e/CEB5030E-ED0A-4960-8A65-BF16F796C31E.gif)
+![image alt](https://github.com/vague2ly/xann6ix/blob/c6ebc08039bf735a3670c044b5970d36c5e85638/Haruto%20from%20Coppelion_%20Yup.%20I%20officially%20have%20found%20my%20favorite%20character%20from%20this%20show_)
 
