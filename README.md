@@ -1,6 +1,6 @@
 ![profile views counter on GitHub](https://komarev.com/ghpvc/?username=vague2ly&color=284758)
 
-![image alt](https://github.com/vague2ly/xann6ix/blob/c6ebc08039bf735a3670c044b5970d36c5e85638/Haruto%20from%20Coppelion_%20Yup.%20I%20officially%20have%20found%20my%20favorite%20character%20from%20this%20show_)
+![image alt](https://github.com/vague2ly/vague2ly/blob/bc8b4e9b7b4f276414775c04e641aa1bd3fd12a5/DAE2B3A5-8B39-4B35-A893-0425F355F4E0.gif)
 
 ⏔⏔⏔⏔⏔⏔⏔ ꒰ 🪽 ꒱ ⏔⏔⏔⏔⏔⏔
 
