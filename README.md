@@ -1,6 +1,6 @@
 ![profile views counter on GitHub](https://komarev.com/ghpvc/?username=vague2ly&color=284758)
 
-![image alt](https://github.com/vague2ly/vague2ly/blob/bc8b4e9b7b4f276414775c04e641aa1bd3fd12a5/DAE2B3A5-8B39-4B35-A893-0425F355F4E0.gif)
+![image alt](https://github.com/vague2ly/vague2ly/blob/f220934639b12bfbaf8f9ac213e2c6d791324d12/D6359C6D-D37F-4ADD-BE20-1ED5C8135677.gif)
 
 ⏔⏔⏔⏔⏔⏔⏔ ꒰ 🪽 ꒱ ⏔⏔⏔⏔⏔⏔
 
