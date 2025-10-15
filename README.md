@@ -2,7 +2,7 @@
 <p align=center> <img src=https://komarev.com/ghpvc/?username=vague2ly&color=B9BB81&style=flat-square&label=ৎ𝄢>
 
   
-![image alt](https://github.com/vague2ly/vague2ly/blob/2bb988a50bc23d5fca04b78e121af51f30c272fd/D6359C6D-D37F-4ADD-BE20-1ED5C8135677.gif)
+![image alt](https://github.com/vague2ly/vague2ly/blob/f5b489ad44d5e3e900236ffa5794fc22466810a8/562CC694-BFC3-4836-8C96-3D3D9D32CE6C.gif)
 
                         ᭄᭡ ͏ 𓂃    ༿🗡️
 
