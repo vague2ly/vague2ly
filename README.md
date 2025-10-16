@@ -16,7 +16,7 @@
 ![](https://i.postimg.cc/C5MxV87k/tumblr-a22b9b27344232e5c24c0785cf47f778-1dae2b55-100.gif)
 ![](https://i.postimg.cc/0QWLbJxp/dd7izsc-772e7cfb-14b4-4a6d-8451-b9609512e0f7.png)
 ![](https://i.postimg.cc/VLDb5fbz/d4juqx8-da683210-c826-44c5-ba4d-379e7cf85862.png)
-![](https://i.postimg.cc/13YgyvVB/d4898dj-00ac3089-77d7-4622-be35-1fd886ad2a01.gif)
+![](https://github.com/vague2ly/vague2ly/blob/c45ee36c2c155d83aeece14748b1fbbb1bfc18ca/IMG_0366.webp)
 ![](https://i.postimg.cc/8cPHqy6G/blinkies.webp)
 ![](https://i.postimg.cc/fRFbGk1g/d9ww5zz-1bd39714-b157-4c0a-9d09-71c9bb6beeca.png)
 
