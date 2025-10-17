@@ -2,7 +2,7 @@
 <p align=center> <img src=https://komarev.com/ghpvc/?username=vague2ly&color=B9BB81&style=flat-square&label=ৎ𝄢>
 
   
-![image alt](https://github.com/vague2ly/vague2ly/blob/f5b489ad44d5e3e900236ffa5794fc22466810a8/562CC694-BFC3-4836-8C96-3D3D9D32CE6C.gif)
+![image alt](https://github.com/vague2ly/vague2ly/blob/e28502ad82cead430a695f2a48e303f52de9a03b/IMG_0440.jpeg)
 
 
 
@@ -13,6 +13,6 @@
 
 ![](https://i.postimg.cc/8cPHqy6G/blinkies.webp)
 ![](https://i.postimg.cc/fRFbGk1g/d9ww5zz-1bd39714-b157-4c0a-9d09-71c9bb6beeca.png)
-![](https://i.postimg.cc/L4cg5STs/1-AF3-ADD0-08-C8-4-A77-98-D2-E85-BE3-C7285-B.gif)
+
 
 
