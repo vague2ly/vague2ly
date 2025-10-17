@@ -4,8 +4,6 @@
   
 ![image alt](https://github.com/vague2ly/vague2ly/blob/f5b489ad44d5e3e900236ffa5794fc22466810a8/562CC694-BFC3-4836-8C96-3D3D9D32CE6C.gif)
 
-                        ᭄᭡ ͏。。。
-
 
 
        ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶
