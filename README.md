@@ -2,11 +2,11 @@
 <p align=center> <img src=https://komarev.com/ghpvc/?username=vague2ly&color=B9BB81&style=flat-square&label=ৎ𝄢>
 
   
-![image alt](https://github.com/vague2ly/vague2ly/blob/e28502ad82cead430a695f2a48e303f52de9a03b/IMG_0440.jpeg)
 
 
 
-       ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶ ༶
+
+       
 
 
 
