@@ -4,7 +4,6 @@
 ![image alt](https://github.com/vague2ly/vague2ly/blob/a8ed3786b26293aef4ca867959c48cba8d98fa91/IMG_0775.jpeg)
 
 
-
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
