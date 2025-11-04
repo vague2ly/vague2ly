@@ -13,6 +13,4 @@
 ![image alt](https://github.com/vague2ly/vague2ly/blob/f38673d753bafb134f52a2f1895b6906599763a0/IMG_0942.gif)
 
 
-![image alt](https://github.com/vague2ly/v/blob/12455fadda87f313e8b2028e2e8b75c98b13e6cc/IMG_0945.png)
-![image alt](https://github.com/vague2ly/v/blob/bc2bb409982338f5c1262a395193bedfd775a964/IMG_0956.gif)
-![image alt](https://github.com/vague2ly/v/blob/c18776d7ad1439b28572be29ee425a9105c0eba5/IMG_0957.png)
+![image alt](https://github.com/vague2ly/vague2ly/blob/d590b1a00089324ec024ac6e34ff1f8039c13536/IMG_1097.gif)
