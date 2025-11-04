@@ -1,5 +1,5 @@
 ![image alt](https://github.com/vague2ly/vague2ly/blob/461c9fb10c4752aa8c04fb8962d951937fd6f2ab/IMG_0947.gif)
-![image alt](https://github.com/vague2ly/vague2ly/blob/1de839129740818a73599dfeee57f3c18dacdba0/IMG_0949.webp)
+![image alt](https://github.com/vague2ly/vague2ly/blob/b1c6be97f9bce8acde8294c9a52131bdd6325d07/IMG_1094.jpeg)
 
 <p align=center> <img src=https://komarev.com/ghpvc/?username=vague2ly&color=E36823&style=flat-square&label=⟡🦢─>
 
