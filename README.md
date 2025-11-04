@@ -1,5 +1,5 @@
-![image alt](https://github.com/vague2ly/vague2ly/blob/05660bcb91467abf743f8cbad549e25c2accf3d2/IMG_1096.gif)
-![image alt](https://github.com/vague2ly/vague2ly/blob/666727515607591b1df2b0dfda6d1cae73704ebd/IMG_1098.gif)
+![image alt](https://github.com/vague2ly/vague2ly/blob/6482c5af346c138b59cf60afd023ea0f28cc1ac6/IMG_1103.gif)
+![image alt](https://github.com/vague2ly/vague2ly/blob/6482c5af346c138b59cf60afd023ea0f28cc1ac6/IMG_1102.gif)
 
 <p align=center> <img src=https://komarev.com/ghpvc/?username=vague2ly&color=CA8B54&style=flat-square&label=⟡>
   
