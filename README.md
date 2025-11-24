@@ -2,7 +2,7 @@
 
 <p align=center> <img src=https://komarev.com/ghpvc/?username=vague2ly&color=CA8B54&style=flat-square&label=⟡>
   
-![image alt](https://github.com/vague2ly/vague2ly/blob/e87f45591b85a1c02564c748d4e6e0fd1ec8ba24/IMG_1100.jpeg)
+![image alt](https://github.com/vague2ly/vague2ly/blob/a921bb9448378cb4c01083adadc67dbaf9491a19/IMG_2352.jpeg)
 
 
 
