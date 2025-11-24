@@ -1,5 +1,4 @@
-![image alt](https://github.com/vague2ly/vague2ly/blob/6482c5af346c138b59cf60afd023ea0f28cc1ac6/IMG_1103.gif)
-![image alt](https://github.com/vague2ly/vague2ly/blob/6482c5af346c138b59cf60afd023ea0f28cc1ac6/IMG_1102.gif)
+
 
 <p align=center> <img src=https://komarev.com/ghpvc/?username=vague2ly&color=CA8B54&style=flat-square&label=⟡>
   
