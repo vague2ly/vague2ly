@@ -6,7 +6,7 @@
 ![image alt](https://github.com/vague2ly/vague2ly/blob/e87f45591b85a1c02564c748d4e6e0fd1ec8ba24/IMG_1100.jpeg)
 
 
- ![image alt](https://github.com/vague2ly/vague2ly/blob/c0093b2fc7f355a6875c22e5ffea1c69b0227756/IMG_0951.gif) ![image alt](https://github.com/vague2ly/vague2ly/blob/e57fd1038971d613244c1c0646d0574f682c96fc/IMG_0953.gif)
+
 
 
 ![image alt](https://github.com/vague2ly/vague2ly/blob/f38673d753bafb134f52a2f1895b6906599763a0/IMG_0943.gif)
