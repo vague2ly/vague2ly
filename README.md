@@ -6,7 +6,7 @@
 
 
 
-⭐️
+𓏲  ࣪  ˳️   ⭐️   ׄ    𖥨    ˖  
 
 ![image alt](https://github.com/vague2ly/vague2ly/blob/f38673d753bafb134f52a2f1895b6906599763a0/IMG_0943.gif)
 ![image alt](https://github.com/vague2ly/vague2ly/blob/f38673d753bafb134f52a2f1895b6906599763a0/IMG_0955.gif)
