@@ -1,5 +1,5 @@
 
-<p align=center> <img src=https://komarev.com/ghpvc/?username=vague2ly&color=96cfc2&style=flat-square&label=⬫>
+<p align=center> <img src=https://komarev.com/ghpvc/?username=vague2ly&color=a1e197&style=flat-square&label=⬫>
   
 ![image alt](https://github.com/vague2ly/vague2ly/blob/edafb0c13a0081148ac3c770a6912d4458eaf3cf/IMG_2442.jpeg)
 
