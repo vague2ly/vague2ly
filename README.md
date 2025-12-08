@@ -2,6 +2,8 @@
 
 ![](https://komarev.com/ghpvc/?username=vague2ly&label='关&color=000000)
 
+i lov my [gf](https://github.com/etherealtoax)
+
 [tree](https://colormytree.me/2025/01KBVT4575W4C5AW5Z29RK3RA7)
  ' 
  [ata](https://guangw.atabook.org/)
