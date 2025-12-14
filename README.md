@@ -1,6 +1,6 @@
 ![image alt](https://github.com/vague2ly/vague2ly/blob/c5f00b282fdb37a53bfe3f332bcec773cfc350cb/IMG_2651.gif)
 
-![](https://komarev.com/ghpvc/?username=vague2ly&label='关&color=cdcd92)
+![](https://komarev.com/ghpvc/?username=vague2ly&label='关&color=ffab91)
 
 i lov my [gf](https://github.com/etherealtoax)
 
