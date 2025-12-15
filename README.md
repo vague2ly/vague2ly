@@ -13,4 +13,4 @@ i lov my [gf](https://github.com/etherealtoax)
 
  [rbl](https://www.roblox.com/share?code=d38dd2048f3c764ba501533fc935cb42&type=Profile&source=ProfileShare&stamp=1765224293729)
 
-![image alt](https://github.com/vague2ly/vague2ly/blob/ec6f736ce1e73efb1ea40071f4c4558491b45870/Khong_Co_Tieu_e53_20251215122542.png)
+![image alt](https://github.com/vague2ly/vague2ly/blob/c36805b49d2a6f572cc462cbb1a0830eb316ddd3/Kho%CC%82ng%20Co%CC%81%20Tie%CC%82u%20%C4%90e%CC%82%CC%8053_20251215131440.png)
