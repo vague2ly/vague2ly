@@ -4,8 +4,6 @@
 
 i lov my [gf](https://github.com/etherealtoax)
 
-
- [ata](https://guangw.atabook.org/)
  
 ![image alt](https://github.com/vague2ly/vague2ly/blob/ac42bc5a93348de0ec0a8c4a916c031fe7c6b1d9/IMG_4427.gif)
 
